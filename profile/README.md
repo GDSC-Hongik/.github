@@ -1,4 +1,4 @@
-![메인이미지](https://github.com/user-attachments/assets/90ac7df6-4299-4a69-bb7b-54610a37d849)
+![메인이미지](https://github.com/user-attachments/assets/2c335c3e-39f9-4d37-8339-9199b1805892)
 
 <div align="center">
 
